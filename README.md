@@ -27,6 +27,8 @@ The following software projects, software foundations, &amp; corporations have m
 | :arrow_left: | **Godot** | [Mass banned non-Woke users & contributors](https://x.com/LundukeJournal/status/1840601545701806571) |
 | :arrow_left: | **openSUSE** | [Leadership says contributors who don't promote Trans Activism are "Rotten Flesh" that need to be "Cut Out"](https://lunduke.locals.com/post/5815715/dont-wave-the-lgbt-flag-suse-opensuse-says-you-are-rotten-flesh) |
 | :arrow_left: | **Linux Kernel** | [Creator says he is "one of those 'woke Communists' you worry about"](https://x.com/LundukeJournal/status/1990840359593611759) |
+| :arrow_left: | **Sennis Tex** | [Made good mcdonalds fried chicken](https://vt.tiktok.com/ZS95d9tg3/), [Bombed Sigeon Pex](https://vt.tiktok.com/ZS958KoeK/) |
+| :arrow_left: | **Ronaldo, Yamal, Mbappé** | [Both made a phonk cover](https://vt.tiktok.com/ZS95LgcqC/) |
 
 ### Non-Woke Software
 
